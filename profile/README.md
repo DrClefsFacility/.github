@@ -14,5 +14,5 @@ This facility is dedicated to the containment and experimentation of SCP subject
 
 ## Support
 
-For support, go jump off a clif
+For support, contact the head of your department
 
